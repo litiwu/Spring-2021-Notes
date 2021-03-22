@@ -1,4 +1,4 @@
-#₍ ᐢ.  ̫ .ᐢ ₎ 
+# ₍ ᐢ.  ̫ .ᐢ ₎ #
 
 hey guys lisa here! i do love taking notes, but sometimes, they take me a long time sad (*꒦ິ⌓꒦ີ) <br />
 <br />
