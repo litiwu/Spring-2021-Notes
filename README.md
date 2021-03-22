@@ -15,7 +15,9 @@ also pls don't steal my notes i will cry <br />
     (before tests for sure tho)
 3.  **can i bring these notes to my open notes exams(if any)?** <br />
     *no that's cheating* 
-4.  **do you have a valorant addiction?** <br />
+4.  **why are the files so messy** <br />
+    okay so i didn't know i was gonna do this when in th beginning of the semester so i did not bother to consolidate my file names and i am kind of lazy right now but maybe ill get to it one day ¯\\\_(ツ)\_/¯
+6.  **do you have a valorant addiction?** <br />
     no i dont believe so :')
 <br>
 p.s. ignore the weird icon stuff in my files its for my hxh themed folders on my local files 
