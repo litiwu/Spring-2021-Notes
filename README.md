@@ -6,7 +6,8 @@ i am once again asking for your financial support <br />
 if you would like to support my pay to win valorant career, i am accepting donations to my venmo [@lisaawu](https://venmo.com/code?user_id=2662090422616064790) <br />
 all the proceeds will go towards valorant skins i promise <br />
 also pls don't steal my notes i will cry <br />
-<br />
+
+if theres something embarrassing in my notes pls contact me on discord liti#9707 <br>
 ## FAQs ##
 1. **what do you take your notes with?**<br /> 
     i take my most of my notes with GoodNotes5 on an iPad pro, but for cs 2340 i use notion.<br />
