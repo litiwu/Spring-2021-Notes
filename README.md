@@ -17,5 +17,5 @@ also pls don't steal my notes i will cry <br />
     *no that's cheating* 
 4.  **do you have a valorant addiction?** <br />
     no i dont believe so :')
-
+<br>
 p.s. ignore the weird icon stuff in my files its for my hxh themed folders on my local files 
