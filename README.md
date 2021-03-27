@@ -18,6 +18,8 @@ if theres something embarrassing in my notes pls contact me on discord liti#9707
     *no that's cheating* 
 4.  **why are the files so messy?** <br />
     okay so i didn't know i was gonna do this when in th beginning of the semester so i did not bother to consolidate my file names and i am kind of lazy right now but maybe ill get to it one day ¯\\\_(ツ)\_/¯
+5.  **why is the text so small** <br />
+    i REALLY tried writing bigger but i PHYSICALLY CANNOT this is so sad
 6.  **do you have a valorant addiction?** <br />
     no i dont believe so :')
 <br>
