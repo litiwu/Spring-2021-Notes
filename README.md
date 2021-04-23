@@ -2,8 +2,8 @@
 
 hey guys lisa here! i do love taking notes, but sometimes, they take me a long time sad (\*꒦ິ⌓꒦ີ) <br />
 
-~yes i am now BURNT OUT from grinding too hard so I am going to foucus on getting school work done and won't have time to produce my notes ; - ;<br />
-hopefully i recover one day but (-｡-; idk when that will be~<br />
+yes i am now BURNT OUT from grinding too hard so I am going to foucus on getting school work done and won't have time to produce my notes ; - ;<br />
+hopefully i recover one day but (-｡-; idk when that will be<br />
 
 <br />
 i am once again asking for your financial support <br />
