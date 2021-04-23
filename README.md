@@ -5,12 +5,6 @@ hey guys lisa here! i do love taking notes, but sometimes, they take me a long t
 yes i am now BURNT OUT from grinding too hard so I am going to focus on getting school work done and won't have time to produce my notes ; - ;<br />
 hopefully i recover one day but (-｡-; idk when that will be<br />
 
-<br />
-i am once again asking for your financial support <br />
-if you would like to support my pay to win valorant career, i am accepting donations to my venmo [@lisaawu](https://venmo.com/code?user_id=2662090422616064790) <br />
-all the proceeds will go towards valorant skins i promise <br />
-also pls don't steal my notes i will cry <br />
-
 if theres something embarrassing in my notes pls contact me on discord liti#9707 <br>
 
 ## FAQs
